@@ -15,7 +15,7 @@ https://panvent.blogspot.com/ (design "Vinnie 2")
 
 https://www.youtube.com/watch?v=gk_Qf-JAL84 "Mechanical Ventilation Explained Clearly - Ventilator Settings & Modes"
 
-
+https://www.youtube.com/watch?v=ScoSEeZJE08 Lung Mechanics: PEEP, CPAP, ACMV , La mécanique des poumons expliquée de manière pas trop complexe
 
 
 
